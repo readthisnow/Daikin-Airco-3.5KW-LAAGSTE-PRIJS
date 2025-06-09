@@ -1,6 +1,6 @@
-# Daikin Airco 3.5 kW Prijs
+# Daikin Airco 3.5 kW (LAAGSTE PRIJS)
 
-De laatste bekende prijs voor een **Daikin airco 3.5 kW split unit** ligt tussen de **€1.100 en €1.500**, afhankelijk van model, installatie en extra opties.  
+De laatste bekende prijs medio juni 2025 voor een **Daikin airco 3.5 kW split unit** ligt tussen de **€1.100 en €1.500**, afhankelijk van model, installatie en extra opties.  
 👉 **[Bekijk de laagste prijs op Amazon Nederland >](https://www.amazon.nl/s?k=daikin+airco+3.5+kw&tag=laptoplifepro-21&language=nl_NL&ref=as_li_ss_tl)**
 
 ---
